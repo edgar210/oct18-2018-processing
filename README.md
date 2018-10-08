@@ -1,2 +1,2 @@
-# Tarea6 octubre 8
+# trabajo octubre 8
 participación
